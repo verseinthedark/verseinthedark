@@ -1,10 +1,10 @@
 <p align="center">
 <img width="550" height="500" alt="imagem_2026-10-23_214147029-Photoroom (2)" src="https://github.com/user-attachments/assets/cb779305-6621-400b-a469-970cc827fc77" />
 
-
  <p align="center">
+<img width="900" height="34" alt="image" src="https://github.com/user-attachments/assets/89570496-24f1-4b20-a1ab-108a0703dda5" />
 
- <img width="1000" height="29" alt="tumblr_b76318527b716b072f7918ee37adc356_34030a12_400" src="https://github.com/user-attachments/assets/4d25b40d-c295-4abd-9a50-626acf0899ed" />
+
 
 <p align="center"> </ins> call me by Pat!!</p>
 <p align="center">
