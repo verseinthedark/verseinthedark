@@ -1,16 +1,17 @@
 <p align="center">
-<img width="500" height="500" alt="image" src="https://64.media.tumblr.com/5b378985764a842480ed7c7ce75fa233/8ace83d51ed31b2a-4a/s1280x1920/622de3a90acf42b1c14d4ce365ddf5aab7292f56.jpg" />
-</p>
+<img width="550" height="500" alt="imagem_2026-10-23_214147029-Photoroom (2)" src="https://github.com/user-attachments/assets/cb779305-6621-400b-a469-970cc827fc77" />
+
+
  <p align="center">
-<img width="500" src="https://64.media.tumblr.com/10981979439017f68447cf14b709d00b/8ace83d51ed31b2a-68/s2048x3072/c5ef272faab4ff3b201f1e5192c7a0bbef6df5ae.pnj" />
- </p>
 
+ <img width="1000" height="29" alt="tumblr_b76318527b716b072f7918ee37adc356_34030a12_400" src="https://github.com/user-attachments/assets/4d25b40d-c295-4abd-9a50-626acf0899ed" />
 
-<p align="center">mids <ins>or</ins> pat</p>
+<p align="center"> </ins> call me by Pat!!</p>
 <p align="center">
-  <img width="30" src="https://64.media.tumblr.com/258c9ba7c2f7e8984096052df2fae856/75db64ce06c67ec1-b3/s75x75_c1/f7017040584f9e344c860247bcc8cd183c6e185b.gifv">
-   sam sdv's #1 fan real !!!
-</p> 
+<img width="20" height="20" alt="tumblr_5421dcb2da3152186d5560ae3c7f9f05_74497783_75" src="https://github.com/user-attachments/assets/824a428f-710f-487d-9cee-1de54da8bdb9" />
+
+<p align="center">
+#number one horror fan, true !!!
 <p align="center">
  check links for extra info
 </p>
@@ -19,17 +20,17 @@
 ㅤ
 <p align="center">
 
-  <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/b0b55baa7c6880de21dd64f4fd521aa1/1bbf2c0d2db9dceb-0a/s100x200/9017ab8d644366e60744374fc84cc8eb776be518.gifv" />
- <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/d61d1b3bcf2b0fb2a3d05904443b1eca/6e01f55dfdb00d9d-e6/s250x400/8d3453b6f60b8e972437e7a4649416beb9bc606c.gifv" />
- <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/35026b1f79de42312c2da35b3b7b87c4/8f1c5e6ca8aead0b-6c/s100x200/4b1ae6c76c896b38ce2ff889e489fa9e9bd3fb32.pnj" />
- <img width="100" height="100" alt="image" src="https://64.media.tumblr.com/49805655e46d939d09aba724cbd08d7a/782eb5915006196d-32/s100x200/031b41578b6bebc5d06fe6b55fa59f775f0afd1e.pnj" />
- </p>
+<img width="100" height="100" alt="9a0a61ce5770aa10e3662f546e0f2da2" src="https://github.com/user-attachments/assets/195a0b31-8fd9-421b-98ab-1d1542d38d85" />
+<img width="100" height="100" alt="8261c939ed68a5fb7a500c23b233fb5b" src="https://github.com/user-attachments/assets/1e8645b2-22a9-4709-9ce7-4f2bb9a5b277" />
+<img width="160" height="100" alt="67059119-ab14-4668-9648-b7a189f381c2" src="https://github.com/user-attachments/assets/19a786db-5189-427f-b03b-10acf3da3dda" />
+<img width="100" height="100" alt="8571fc62a415610e93d7459e230f24ab" src="https://github.com/user-attachments/assets/0530b938-b71d-499b-973c-55316f7499a9" />
+<img width="100" height="100" alt="dd61823689936bf4e589595634b69518" src="https://github.com/user-attachments/assets/a475a8ef-a6d8-4546-ad7d-ba008427368a" />
 
 
 <p align="center"> 
-  <img width="150" src="https://64.media.tumblr.com/dbf54aef63fc1449e253cb8dbd38b2dd/780cd42c6ed6998e-9e/s250x400/0c281b7815701f9a1dc54b066710f666e7d676b0.gifv" />
- <img width="150" src="https://64.media.tumblr.com/a2a5e953c9fe01419d94574e5ce49bf4/98b7a0406651a600-51/s400x600/78a5b9a5e7ee17ca3aba4cbeebbb7ab4a2bfc23f.gifv" />
- <img width="150" src="https://64.media.tumblr.com/d0dac75d9c9e664cea03e5a82e917fc7/544a07285e4c86fc-f2/s400x600/423689773f99e826ec8d77d63b217425d93f0a95.webp" />
+  <img width="150" src="https://i.pinimg.com/736x/6c/d3/bb/6cd3bbdae9d09d33f5736ecfa3752338.jpg" />
+ <img width="200" height="160" src="https://64.media.tumblr.com/4e07877e2454a4ca6c3fc88187b925ed/a08f41b14d01b5f1-2e/s400x600/b4e821c0742f73e23c018712428819d0708e19fd.gifv" />
+ <img width="150" height="150" alt="c1aa14df-2464-42db-9fe7-e39b652f5124" src="https://github.com/user-attachments/assets/5c51eca4-6d48-4fde-ac9f-f4583d94e0ac" />
  
 </p>
 
