@@ -1,6 +1,7 @@
 <p align="center">
 <img width="550" height="500" alt="imagem_2026-10-23_214147029-Photoroom (2)" src="https://github.com/user-attachments/assets/cb779305-6621-400b-a469-970cc827fc77" />
-
+<p align="center">
+ art credits:@4dnightmare on tumblr
  <p align="center">
 <img width="900" height="34" alt="image" src="https://github.com/user-attachments/assets/89570496-24f1-4b20-a1ab-108a0703dda5" />
 
